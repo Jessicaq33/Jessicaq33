@@ -8,7 +8,7 @@ Responsibility, organization and creativity are three of my favorite words. I am
  
 🌱 I’m currently learning technical writing 
 
-💞️ I’m looking to collaborate on technical / content writing projects
+🌟 I’m looking to collaborate on technical / content writing projects
  
 📫 How to reach me jessicaqm33@gmail.com
 
