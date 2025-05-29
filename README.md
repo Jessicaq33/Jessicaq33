@@ -1,14 +1,8 @@
 👋 Hi, I’m @Jessicaq33 
 
-My professional experience was focused for 10 years in the Psychology field, which has been mainly related to clinical practice and the content writing skills. Currently, I’m more focused on my writing skills as an English and Spanish content writer and editor. Additionally, I’m managing my own online project in Spanish named JessiTerapia and I created my own course in Udemy for anxiety management reaching so far more than 1000 students. 
+My professional experience was focused for 10 years in the field of Psychology, primarily in clinical practice. In the last 6 years, I have transitioned into content creation and editing, working as an English and Spanish content writer and editor. I also created and managed my own online mental health project named JessiTerapia, where I combined my psychology knowledge with digital communication strategies. As a part of this, I created a course on Udemy focused on anxiety management, which has successfully reached over 5,000 students to date. My psychology knowledge combined with my writing skills enables me to create meaningful content that resonates with the audience's needs.
 
-Responsibility, organization and creativity are three of my favorite words. I am highly committed to my job as a writer, therefore I am always willing to learn new things to ensure the quality of my work. At the present I am studying a course about technical writing with the aim to improve my skills. 
-
- 👀 I’m interested in technical writing, content writing and marketing writing  
- 
-🌱 I’m currently learning technical writing 
-
-🌟 I’m looking to collaborate on technical / content writing projects
+ 👀 I’m interested in content writing and editing roles
  
 📫 How to reach me jessicaqm33@gmail.com
 
